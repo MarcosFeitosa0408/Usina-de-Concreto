@@ -14,6 +14,8 @@ Bomba de concreto
 Usada quando precisa lançar o concreto em locais difíceis (prédios, lajes altas, etc).
 💰 Como a usina ganha dinheiro
 
+https://chatgpt.com/s/m_69e9abb00b408191aabc78669fe3bd02
+
 A venda é feita por metragem cúbica (m³).
 
 Exemplo:
